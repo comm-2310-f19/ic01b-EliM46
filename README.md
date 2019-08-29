@@ -12,3 +12,9 @@
 
 1. My favorite YouTube channel is ____Markiplier________________
 
+1. My favorite videogame genre is RPG__________________
+
+1. My favorite videogame is _Legend of Zelda___________________
+
+1. My favorite pokemon or videogame character is _____Rakan__________________
+
