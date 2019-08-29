@@ -6,9 +6,9 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite movie is ___________________
+1. My favorite movie is _____spiderman into the spiderverse______________
 
-1. My favorite tv show is _________________
+1. My favorite tv show is ___steven universe______________
 
-1. My favorite YouTube channel is ____________________
+1. My favorite YouTube channel is ____Markiplier________________
 
